@@ -1,7 +1,4 @@
-- Hello Minna-san Orewa Aryok
-- aku ng kene muk sekedar lewat
-- Oh, numpang promosi
-- Ig : @aryaeka.r.p
+- @aryaeka.r.p
 - heehehehehe
 
 <!---
