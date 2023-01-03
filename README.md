@@ -1,5 +1,5 @@
-- @aryaeka.r.p
-- heehehehehe
+ @aryaeka.r.p
+ heehehehehe
 
 <!---
 aryoks1/aryoks1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
